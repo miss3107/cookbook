@@ -1,0 +1,1 @@
+Bon appétit ! Le mafé est un plat riche et savoureux, parfait pour un repas en famille ou entre amis.
